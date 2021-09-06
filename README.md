@@ -1,1 +1,1 @@
-hello moi nguoi
+chao buoi sang mng
